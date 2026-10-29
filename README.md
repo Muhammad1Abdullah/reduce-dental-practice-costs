@@ -46,7 +46,7 @@ Reviewing trends consistently makes it easier to set realistic goals, identify u
 
 Reducing expenses is most effective when it becomes part of regular practice management rather than an occasional emergency measure. Assign responsibility for reviewing purchasing decisions, monitoring inventory, checking invoices, and reporting significant cost changes.
 
-Independent dental practices can also explore resources that simplify vendor comparisons and improve purchasing visibility. [Reliant Dental Partners](https://YOUR-RELIANT-URL) helps independent dental practices access negotiated pricing opportunities and identify potential savings across eligible supplies, laboratory services, and other business expenses.
+Independent dental practices can also explore resources that simplify vendor comparisons and improve purchasing visibility. [Reliant Dental Partners](https://www.reliantdentalpartners.com/insights) helps independent dental practices access negotiated pricing opportunities and identify potential savings across eligible supplies, laboratory services, and other business expenses.
 
 The goal is to improve financial control while preserving clinical independence, reliable products, and the quality of care patients expect.
 
